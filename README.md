@@ -1,1 +1,1 @@
-# DigitalCitiezenship
+# DigitalCitiznship
